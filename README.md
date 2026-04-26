@@ -26,7 +26,7 @@
 
 📍 India  
 🌐 Portfolio: *(Add if available)*  
-📧 Email: *(Add email)*  
+📧 Email: *adithyashyam1@gmail.com*  
 
 ---
 
